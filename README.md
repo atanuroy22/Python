@@ -1,2 +1,1 @@
-# Python
-Python Code Only
+Click On View Code To show All Code👆👆👆👆👆
